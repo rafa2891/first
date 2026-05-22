@@ -1,2 +1,2 @@
-# *Shirvanich privet! Arkhan*
+# *Ширваныч ОРхан*
 
